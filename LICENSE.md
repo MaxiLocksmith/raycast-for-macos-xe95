@@ -1,4 +1,4 @@
-
+Enhance Raycast for macOS with advanced App for Raycast for macOS - junk-removal and privacy-protection, the #1 app. Includes junk-removal and privacy-protection for a smoother
 
 
 
